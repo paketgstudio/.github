@@ -1,4 +1,4 @@
-![Banner](https://i.imgur.com/XixT8ff.png)
+![Banner](https://i.imgur.com/I9unPk7.png)
 
 # Official Brand
 
