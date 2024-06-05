@@ -1,4 +1,4 @@
-![Banner](https://i.imgur.com/13XuQhT.png)
+![Banner](https://i.imgur.com/wRiUfnw.png)
 
 # Welcome to PaketG Studio
 
