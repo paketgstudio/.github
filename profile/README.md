@@ -1,4 +1,4 @@
-![Banner]()
+![Banner](https://i.imgur.com/WFiwVuv.png)
 
 # Welcome to PaketG Studio
 
