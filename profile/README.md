@@ -1,4 +1,4 @@
-![Banner](https://i.imgur.com/WFiwVuv.png)
+![Banner](https://cfqnplqosakf7iqy.public.blob.vercel-storage.com/banner_github-dIt4x3wkAcgk5wcTVzy87eq28R2ys3.png)
 
 # Welcome to PaketG Studio
 
