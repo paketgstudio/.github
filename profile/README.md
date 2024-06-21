@@ -6,4 +6,4 @@ Discover an extraordinary gaming experience with PaketG Studio! We proudly prese
 
 ## Contact Us
 
-Join our [Discord Community](https://discord.paketg.com) for updates, support and special discounts!
+Join our [Discord Community](https://paketg.com/discord) for updates, support and special discounts!
